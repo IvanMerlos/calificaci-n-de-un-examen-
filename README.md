@@ -1,1 +1,1 @@
-# calificaci-n-de-un-examen-
+# calificacion-de-un-examen-
